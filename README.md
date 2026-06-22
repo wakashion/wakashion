@@ -20,17 +20,13 @@ uhmm dnis and byi here! my interests will be in my strawpage and stuff haha (WIP
 
 ### BYI:
 <small>
-  
-- i block freely even if it's not mentioned in my dni #oops
-- i like semi-problematic(?) media/tropes (yanderes, age-gap, etc)
-- i make nsfw jokes about my fav chars #okay #yeah
-
-- i like oc x canon
-- i don't care about ship discourse, if i don't like a ship i won't int/just block like a regular individual
-
-- pls do NOT copy my ponies, colorpick, etc! 
-
-- i afk often so just whisper to interact >.>
+⋆ i block freely even if it's not mentioned in my dni #oops <br>
+⋆ i like semi-problematic(?) media/tropes (yanderes, age-gap, etc) <br>
+⋆ i make nsfw jokes about my fav chars #okay #yeah <br>
+⋆ i like oc x canon <br>
+⋆ i don't care about ship discourse, if i don't like a ship i won't int/just block like a regular individual <br>
+⋆ pls do NOT copy my ponies, colorpick, etc! <br>
+⋆ i afk often so just whisper to interact >.>
 </small>
 
 ---
@@ -41,6 +37,7 @@ uhmm dnis and byi here! my interests will be in my strawpage and stuff haha (WIP
 - incest/pedo likers dni
 - zionists dni
 - ai prompters/users dni
+- non-con fans
   
 ---
 
