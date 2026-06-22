@@ -20,6 +20,7 @@ uhmm dnis and byi here! my interests will be in my strawpage and stuff haha (WIP
 
 ### BYI:
 <small>
+  
 - i block freely even if it's not mentioned in my dni #oops
 - i like semi-problematic(?) media/tropes (yanderes, age-gap, etc)
 - i make nsfw jokes about my fav chars #okay #yeah
