@@ -33,29 +33,17 @@ uhmm dnis and byi here! my interests will be in my strawpage and stuff haha (WIP
 
 ### DNI:
 
-- -16 dni
-- incest/pedo likers dni
-- zionists dni
-- ai prompters/users dni
-- non-con fans
+⋆ -16 dni
+⋆ incest/pedo likers dni
+⋆ zionists dni
+⋆ ai prompters/users dni
+⋆ non-con fans DNI!
   
 ---
 
 ### OOMFS
 
 <small>
-I LOVE @KGBCH @fuxisword @bradneros
+I LOVE @fuxisword @bradneros
 & ALL MY UNMENTIONED OOMFS thanks for being my friends kya ₍^. .^₎⟆
 </small>
-
----
-
-### LINKS
-
-ᯓ★ LINKS IN PROGRESS !!
-
-
-</td>
-
-</tr>
-</table>
