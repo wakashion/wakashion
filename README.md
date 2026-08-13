@@ -5,7 +5,6 @@
 </p>
 
 <p align="center">
-
  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=22&pause=1000&color=656565&width=500&height=140&lines=%22+whoever+you+may+be%2C+i+don't+mind.+%22" alt="Typing SVG" /></a>
   </a>
 </p>
