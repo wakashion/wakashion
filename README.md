@@ -1,53 +1,44 @@
-<table>
-  <tr>
-    <td width="30%" valign="top">
-      <img src="assets/character.png" width="100%" alt="">
-    </td>
-    <td width="70%" valign="top">
 
-<h3>hi im ren or ajax !! &gt;_&gt;</h3>
-
-<h5>⋆˙⟡ he/him prns  ,  viet & cn  ,  ftm  <img src="https://placeholder.com" width="16" height="16" style="vertical-align: middle;" alt=""></h5>
-
-<p>I USUALLY SIT BY SPAWN or around that proximity with my friends! feel free to whisper since i'm mainly offtab or making skins ^_^
-uhmm dnis and byi here! my interests will be in my strawpage and stuff haha (WIP)</p>
-
-<hr>
-
-<h3>BYI:</h3>
-<small>
-⋆ i block freely even if it's not mentioned in my dni #oops <br>
-⋆ i like various media tropes and fictional characters <br>
-⋆ i make jokes about my fav chars #okay #yeah <br>
-⋆ i like oc x canon <br>
-⋆ i don't care about ship discourse, if i don't like a ship i won't int/just block like a regular individual <br>
-⋆ pls do NOT copy my ponies, colorpick, etc! <br>
-⋆ i afk often so just whisper to interact &gt;.&gt;
-</small>
-
-<hr>
-
-<h3>DNI:</h3>
-<p>
-⋆ basic dni criteria applies <br>
-⋆ zionists dni <br>
-⋆ ai prompters/users dni
-</p>
-  
-<hr>
-
-<h3>OOMFS</h3>
-
-<p>
-  <small>
-    I LOVE 
-    <a href="https://github.com" title="Visit fuxisword's profile">@fuxisword</a> 
-    <a href="https://github.com" title="Visit bradneros's profile">@bradneros</a> 
-    <a href="https://github.com" title="Visit apolloste's profile">@apolloste</a> 
-    <br>
-    & ALL MY UNMENTIONED OOMFS thanks for being my friends kya ₍^. .^₎⟆
-  </small>
+<p align="center">
+  <!-- Main Artwork -->
+  <img src="https://www.image2url.com/r2/default/images/1786592721393-0d2bea41-dcfc-445e-a8db-4a2e5262733f.png" alt="Artwork" width="600">
 </p>
 
-  </tr>
-</table>
+<p align="center">
+
+ <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=22&pause=1000&color=656565&width=500&height=140&lines=%22+whoever+you+may+be%2C+i+don't+mind.+%22" alt="Typing SVG" /></a>
+  </a>
+</p>
+
+<p align="center">
+  <!-- Top Ribbon Border -->
+  <img src="https://64.media.tumblr.com/c6df6bce4c3f831580bd02ea4f4fd5d0/de77b7273f8c74cf-aa/s2048x3072/3d5d492c10eb01bce2cfd9bc2c017570aeb4953e.pnj" alt="Top Ribbon Divider" width="100%">
+</p>
+
+<p align="center">
+  ren or ajax , i don't care &nbsp;&nbsp; he/him , bisexual & transman #okay! 
+  <br><br> 
+  i like after god, csm, morimens, antonym obscure + other stuff. msg me a visual novel i should try out ! >3> 
+  <br><br> 
+  feel free to talk to me! i'm mainly off tab #sorray &nbsp;&nbsp; <a href="wakashion.carrd.co">dni in my carrd</a> , i block freely 
+</p>
+
+
+<p align="center">
+  <!-- Bottom Ribbon Border -->
+  <img src="https://64.media.tumblr.com/c53a32c344a179ae8890a61e7e70e14a/de77b7273f8c74cf-6d/s2048x3072/0cedc579bf5da08a1c16f12098843df755194282.pnj" alt="Bottom Ribbon Divider" width="100%">
+</p>
+
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31tlf37acx4rqugtsln2zgscyvvu&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=true">
+  </a>
+</p>
+
+<p align="center">
+ heehee my oomfs ⟢
+  <a href="https://github.com/fuxisword">@fuxisword</a> &nbsp;•&nbsp; 
+  <a href="https://github.com/bewitchingeyes">@bewitchingeyes</a> &nbsp;•&nbsp; 
+  <a href="https://github.com/apolloste">@apolloste</a>
+  & more! >3>
+</p>
