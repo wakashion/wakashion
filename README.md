@@ -17,7 +17,7 @@
 <p align="center">
   ren or ajax , i don't care &nbsp;&nbsp; he/him , bisexual & transman #okay! 
   <br><br> 
-  i like after god, csm, morimens, antonym obscure + other stuff. msg me a visual novel i should try out ! >3> 
+  i like after god, persona 2-5, morimens, antonym obscure + other stuff. msg me a visual novel i should try out ! >3> 
   <br><br> 
   feel free to talk to me! i'm mainly off tab #sorray &nbsp;&nbsp; <a href="wakashion.carrd.co">dni in my carrd</a> , i block freely 
 </p>
